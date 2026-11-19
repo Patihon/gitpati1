@@ -1,6 +1,1 @@
-# Hello world
-# Hello world
-# Hello world
-# Hello world
-# Hello world
-# ปฏิภาณ ศุภผล
+# ประวัติส่วนตัว
